@@ -1,5 +1,5 @@
 # 💫 About Me:
-Študent na UL FRI. Trenutno začenjam z delom na programu za določanje urnika dežuranja v študentkih domovih. <br>
+Študent na UL FRI, študentsko delo v podjetju Epilog. <br>
 
 
 ## 🌐 Socials:
